@@ -2,4 +2,4 @@
   
 ![](https://file.garden/aDT0Ck-AL1_uKJ4P/misc/demiurge)
 
-[rentry](https://rentry.co/deepest) [strawpage](https://kajiren.straw.page) [ata](https://izanami.atabook.org/) 
+sign my [atabook](https://izanami.atabook.org/) boy
